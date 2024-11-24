@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...product design
 - 💞️ I’m looking to collaborate on ...web 3 projects
 - 📫 How to reach me ...Twitter:Amazing26385117
-- 😄 Pronouns: ...Amazing 
+- 😄 Pronouns: ...Him 
 - ⚡ Fun fact: ...readinf books, creating content and chatting 
 Crypto Community Expert
 5+ years in Web3, driving engagement & growth
