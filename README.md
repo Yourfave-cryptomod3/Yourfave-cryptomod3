@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...web 3 projects
 - 📫 How to reach me ...Twitter:Amazing26385117
 - 😄 Pronouns: ...Him 
-- ⚡ Fun fact: ...readinf books, creating content and chatting 
+- ⚡ Fun fact: ...reading books, creating content and chatting 
 Crypto Community Expert
 5+ years in Web3, driving engagement & growth
 Proven track record in:
